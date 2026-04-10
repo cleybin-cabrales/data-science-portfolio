@@ -1,7 +1,8 @@
 # Data Science & AI Portfolio
 **Cleybin Cabrales** | Miami, FL  
 Executive MBA + M.S. in Data Analytics & Artificial Intelligence  
-Kelbert University | GPA: 4.00 | Expected August 2026
+Kelbert University | GPA: 4.00 | Expected August 2026  
+B.S. in Economics — Universidad Central de Venezuela (U.S. Credential Evaluated by ECE®)
 
 📧 cleybin@gmail.com • [LinkedIn](https://www.linkedin.com/in/cleybin-cabrales-437b69176)
 
