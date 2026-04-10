@@ -9,7 +9,7 @@ B.S. in Economics — Universidad Central de Venezuela (U.S. Credential Evaluate
 ---
 
 ## About Me
-Bilingual Business & Data Analyst (English/Spanish) with a background in economics and entrepreneurship. Specialized in machine learning, predictive modeling, and AI strategy. Authorized to work in the United States.
+Bilingual Business & Data Analyst (English/Spanish) with a background in economics and entrepreneurship. U.S.-credentialed Economist (B.S. in Economics — Universidad Central de Venezuela, evaluated and recognized by Educational Credential Evaluators — ECE®, equivalent to U.S. regional accreditation). Specialized in machine learning, predictive modeling, and AI strategy. Authorized to work in the United States.
 
 ---
 
