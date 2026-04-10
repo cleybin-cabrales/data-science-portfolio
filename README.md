@@ -3,7 +3,7 @@
 Executive MBA + M.S. in Data Analytics & Artificial Intelligence  
 Kelbert University | GPA: 4.00 | Expected August 2026
 
-📧 cleybin@gmail.com • [LinkedIn](https://www.linkedin.com/in/cleybin-cabrales-rivero-437b69176)
+📧 cleybin@gmail.com • [LinkedIn](https://www.linkedin.com/in/cleybin-cabrales-437b69176)
 
 ---
 
